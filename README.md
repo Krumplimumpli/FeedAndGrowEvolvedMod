@@ -1,5 +1,5 @@
 ==================================================
-        FEED & GROW: EVOLVED MOD - TUTORIAL       
+        NEW VERSION: https://www.nexusmods.com/feedandgrowfish/mods/1     
 ==================================================
 
 Thank you for downloading the Evolved Mod! 
